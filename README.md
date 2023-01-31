@@ -1,4 +1,4 @@
-Site validated, by me.  All ordered in Europe.
+Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
 
 • RealChems: Serious but long enough without package tracking. Fast with tracking.
 
