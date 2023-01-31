@@ -30,7 +30,7 @@ ________________________________________________________________________________
 
  • SkyChemical: Possibility of scams. ❌
 
- • Evcomerio (ChemCloud ES): Very serious, very fast shipping from Spain with GLS. 3mmc in stock. ☑️
+ • E&Vcomercio (ChemCloud ES): Very serious, very fast shipping from Spain with GLS. 3mmc in stock but contact chemcloud by email. ☑️
 
  • Chemistry King: ❔
 
