@@ -18,7 +18,7 @@ Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
 
  • ChemicalCollective: Serious and fast. ☑️
 
- • SkyChemical: Possibility of scams. ☑️
+ • SkyChemical: Possibility of scams. ❌
 
  • Evcomerio (ChemCloud ES): Very serious, very fast shipping from Spain with GLS. 3mmc in stock. ☑️
 
@@ -37,7 +37,7 @@ Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
 
 
  * ∆   = Not verified.
- * ❌  = Site down.
+ * ❌  = Site down or scam.
  * ☑️  = Site OK, not scam.
 
 // Acideno
