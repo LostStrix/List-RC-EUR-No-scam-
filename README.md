@@ -8,7 +8,7 @@ Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
 
  • TheRealRC/TRRC: Serious and fast. Make mistakes sometimes/rarely but refund on next order.
 
- • Rarechems: / Dead site, down.
+ • Rarechems: Down.
 
  • Smokey8: ∆
 
@@ -32,5 +32,9 @@ Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
  • AnyChem: ∆
 
  • Aimimichem: ∆
+ 
+ • ProfessorNL: ∆
+
+
 
  * ∆ = Not verified.
