@@ -1,4 +1,4 @@
-Site validated, by me.  All ordered in Europe. (UPDATE : 31/01/2023)
+Site validated. All ordered in Europe. (UPDATE : 31/01/2023)
 
 ___________________________________________________________________________________________________________________
 
