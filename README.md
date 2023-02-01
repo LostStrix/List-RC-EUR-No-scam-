@@ -51,21 +51,8 @@ ________________________________________________________________________________
  * ☑️  = Site OK, not scam.
 _________________________________________________________________________________________________________________________
 
+To update this list based on your experience, please contact me by telegram on this group. https://t.me/+o-2JDqQDbCdmNGI0
+
 // Acideno 👽
 
-_________________________________________________________________________________________________________________________
-
-
-Confidentiality Charter for this List RC
-- Purpose:
-This charter outlines rules for mentioning websites without promoting them. Mentions must be clear and not imply endorsement or recommendation for the sites.
-- Mentions:
-Website mentions are not considered advertising and do not aim to promote the sites. They serve only to provide additional information and prevention for users.
-- Neutrality:
-Website mentions must be neutral and not involve personal judgment or opinion. They should be objective and present information fairly.
-- Privacy:
-Users' privacy and confidentiality are preserved. No personal information is collected or used without their consent.
-- Responsibility:
-Responsibility for mentioning websites lies with the author of the charter. The author cannot be held responsible for consequences arising from the use of these sites.
-By adopting this charter, we commit to upholding the principles stated above regarding website mentions.
 _________________________________________________________________________________________________________________________
