@@ -1,4 +1,8 @@
-Site validated. All ordered in Europe. (UPDATE : 15/03/2023)
+Site validated. All ordered in Europe. 
+
+♻️ (UPDATE : 15/03/2023)
+
+💬 For sites that ship to the USA, please report it on the Telegram group (at the bottom). Many requests for sites that will ship to the USA.
 
 ___________________________________________________________________________________________________________________
 
