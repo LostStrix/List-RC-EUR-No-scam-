@@ -51,6 +51,9 @@ ________________________________________________________________________________
  
  • Chem-Casino: Ordered three products from chem-casino and they arrived fine, although they speak broken English and take forever to respond to emails. ☑️💬
 
+ • Quasar-chemicals: Reliable site according to users. Ships to Germany. ☑️💬
+
+ • Designerchems: Ship to Germany. ❔💬
 
 _________________________________________________________________________________________________________________________
 
