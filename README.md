@@ -2,7 +2,7 @@ Site validated. All ordered in Europe.
 
 ♻️ (UPDATE : 15/03/2023)
 
-💬 For sites that ship to the USA, please report it on the Telegram group (at the bottom). Many requests for sites that will ship to the USA.
+🗣️ For sites that ship to the USA, please report it on the Telegram group (at the bottom). Many requests for sites that will ship to the USA.
 
 ___________________________________________________________________________________________________________________
 
@@ -11,6 +11,7 @@ Legend :
  * ❔  = Not verified.
  * ❌  = Site down or scam.
  * ☑️  = Site OK, not scam.
+ * 💬  = Order from other users.
  
 ____________________________________________________________________________________________________________________
 
