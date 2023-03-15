@@ -37,7 +37,7 @@ ________________________________________________________________________________
 
  • E&Vcomercio (ChemCloud ES): Very serious, very fast shipping from Spain with GLS. 3mmc in stock but contact chemcloud by email. ☑️
 
- • Chemistry King: ❔
+ • Chemistry King: Ordered in Europe 11/2022, super fast, and included a chemistry King t-shirt. ☑️💬
 
  • Oldschoolrc.net: ❔
 
