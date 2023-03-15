@@ -57,7 +57,10 @@ ________________________________________________________________________________
 _________________________________________________________________________________________________________________________
 
 To update this list based on your experience, please contact me by telegram on this group. https://t.me/+o-2JDqQDbCdmNGI0
- Thank you for your participation.
+ 
+Thanks you for your participation. 🙏🏻
+
+Note: this list aims not to mislead people by ordering on fake sites, phishing sites or worse, to receive products other than what was ordered, which can be dangerous. This list does not endorse any of these sites. The products sold on these sites are dangerous, check your products with a substance kit before handling them.
 
 // Acideno 👽
 
