@@ -61,7 +61,8 @@ ________________________________________________________________________________
  
 _________________________________________________________________________________________________________________________
 
-To update this list based on your experience, please contact me by telegram on this group. https://t.me/+o-2JDqQDbCdmNGI0
+To update this list based on your experience, please contact me by telegram on this group.
+➡️ https://t.me/+o-2JDqQDbCdmNGI0 🔵⚪
  
 Thanks you for your participation. 🙏🏻
 
