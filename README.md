@@ -1,4 +1,4 @@
-Site validated. All ordered in Europe. (UPDATE : 31/01/2023)
+Site validated. All ordered in Europe. (UPDATE : 15/03/2023)
 
 ___________________________________________________________________________________________________________________
 
@@ -10,13 +10,13 @@ Legend :
  
 ____________________________________________________________________________________________________________________
 
-• RealChems: Serious but long enough without package tracking. Fast with tracking. ☑️
+ • RealChems: Serious but long enough without package tracking. Fast with tracking. ☑️
 
  • EuroChems: Seriously, quite fast. ☑️
 
  • ChemicalPlanet: Serious but not always. Fast or long enough. Are sometimes wrong. 50% refund if order lost. ☑️
 
- • TheRealRC/TRRC: Serious and fast. Make mistakes sometimes/rarely but refund on next order. ☑️
+ • TheRealRC/TRRC: Serious and fast. Make mistakes sometimes/rarely but refund on next order. Only trusted domain : (trrcshop'com) ☑️
 
  • Rarechems: Update: Down. ❌
 
@@ -36,22 +36,28 @@ ________________________________________________________________________________
 
  • Oldschoolrc.net: ❔
 
- • Funcaps'nl: Very serious and fast (6 - 8 days) recommended by FedEx. After-sales service attentive and polite. ☑️
+ • Funcaps'nl/com: Very serious and fast (6 - 8 days) recommended by FedEx. After-sales service attentive and polite. They have two different headquarters, one in England (.com) and one in the Netherlands (.nl). Depending on the site chosen, the sender will send from England or the Netherlands. ☑️
 
  • AnyChem: ❔
 
  • Aimimichem: ❔
  
- • ProfessorNL: ❔
+ • ProfessorNL: Reliable site according to users. ☑️💬
+ 
+ • Chem-Casino: Ordered three products from chem-casino and they arrived fine, although they speak broken English and take forever to respond to emails. ☑️💬
+
 
 _________________________________________________________________________________________________________________________
 
  * ❔  = Not verified.
  * ❌  = Site down or scam.
  * ☑️  = Site OK, not scam.
+ * 💬  = Order from other users.
+ 
 _________________________________________________________________________________________________________________________
 
 To update this list based on your experience, please contact me by telegram on this group. https://t.me/+o-2JDqQDbCdmNGI0
+ Thank you for your participation.
 
 // Acideno 👽
 
