@@ -49,7 +49,7 @@ ________________________________________________________________________________
  
  • ProfessorNL: Reliable site according to users. ☑️💬
  
- • Chem-Casino: Ordered three products from chem-casino and they arrived fine, although they speak broken English and take forever to respond to emails. ☑️💬
+ • Chem-Casino: Ordered three products from chem-casino and they arrived fine, although they speak broken English and take forever to respond to emails. Delivered to US in about 14 business days from order. ☑️💬
 
  • Quasar-chemicals: Reliable site according to users. Ships to Germany. ☑️💬
 
