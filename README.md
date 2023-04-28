@@ -1,6 +1,6 @@
-Site validated. All ordered in Europe. 
+Site validated on clearnet. All ordered in Europe. 
 
-♻️ (UPDATE : 15/03/2023)
+♻️ (UPDATE : 28/04/2023)
 
 🗣️ For sites that ship to the USA, please report it on the Telegram group (at the bottom). Many requests for sites that will ship to the USA.
 
@@ -57,6 +57,19 @@ ________________________________________________________________________________
 
 _________________________________________________________________________________________________________________________
 
+Onion site no scam.
+
+Archetyp 
+
+➡️ http://archetyp.cc ☑️ 
+
+Money used : Crypto.
+Devise : Monero (XMR)
+
+⚠️ The use of onion sites (Deepweb) requires a VPN. ⚠️
+
+_________________________________________________________________________________________________________________________
+
  * ❔  = Not verified.
  * ❌  = Site down or scam.
  * ☑️  = Site OK, not scam.
@@ -70,6 +83,8 @@ To update this list based on your experience, please contact me by telegram on t
 Thanks you for your participation. 🙏🏻
 
 Note: this list aims not to mislead people by ordering on fake sites, phishing sites or worse, to receive products other than what was ordered, which can be dangerous. This list does not endorse any of these sites. The products sold on these sites are dangerous, check your products with a substance kit before handling them.
+
+ Stay safe. 🙏
 
 // Acideno 👽
 
