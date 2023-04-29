@@ -41,7 +41,7 @@ ________________________________________________________________________________
 
  • Oldschoolrc.net: ❔
 
- • Funcaps'nl/com: Very serious and fast (6 - 8 days) recommended by FedEx. After-sales service attentive and polite. They have two different headquarters, one in England (.com) and one in the Netherlands (.nl). Depending on the site chosen, the sender will send from England or the Netherlands. ☑️
+ • Funcaps'nl/com: Very serious and fast (6 - 8 days) recommended by FedEx. After-sales service attentive and polite. They have two different headquarters, one in England (.com) and one in the Netherlands (.nl). Depending on the site chosen, the sender will send from England or the Netherlands. ☑️ (No longer ships orders to other countries except the Netherlands.) ⚠️
 
  • AnyChem: ❔
 
@@ -61,12 +61,20 @@ Onion site no scam.
 
 Archetyp 
 
-➡️ http://archetyp.cc ☑️ 
+➡️ http://archetyp.cc : The little "amazon" of products. Site that works with very present admins. Extremely serious and secure site, serious seller for the most part * (a list of the best sellers can be added if requested)
+
+* (A list of the best sellers can be added if requested)
 
 Money used : Crypto.
 Devise : Monero (XMR)
 
 ⚠️ The use of onion sites (Deepweb) requires a VPN. ⚠️
+
+Vendor reliable ;
+
+• MonsieurWhite : very fast shipping, and excellent quality, very good communication, always offers gifts or extra grams ☑️
+
+• BulkExpress : Fast shipping, good communication and very good quality. ☑️
 
 _________________________________________________________________________________________________________________________
 
