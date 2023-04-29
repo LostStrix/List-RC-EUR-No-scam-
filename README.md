@@ -1,6 +1,6 @@
 Site validated on clearnet. All ordered in Europe. 
 
-♻️ (UPDATE : 28/04/2023)
+♻️ (UPDATE : 29/04/2023)
 
 🗣️ For sites that ship to the USA, please report it on the Telegram group (at the bottom). Many requests for sites that will ship to the USA.
 
